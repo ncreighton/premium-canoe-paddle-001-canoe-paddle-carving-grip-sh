@@ -1,0 +1,2 @@
+# premium-canoe-paddle-001-canoe-paddle-carving-grip-sh
+Tired of canoe paddles that leave your hands blistered and aching after a day on the water? This Notion workshop replaces guesswork with a proven system for carving a grip that perfectly conforms to your hand.  This template solves the two biggest pain points in paddle carving: vague instructions and uncomfortable grip shapes. It provides a structu
